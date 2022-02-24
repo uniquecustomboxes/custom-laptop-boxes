@@ -1,0 +1,2 @@
+# custom-laptop-boxes
+As the name suggests that these custom Laptop Boxes are designed to fulfill the packaging needs of all kinds of laptops. From heavy to light-weight, latest to expensive, our custom-made laptop boxes are ideal for the safe packing of any laptop. You can get these boxes in any desired specifications. A handle on the top is also featured on the boxes. The safety measures and numerous inserts inside the boxes would hold the laptops in place. The sturdy and thick cardboard material of the boxes would protect the housed item from outside influence.
